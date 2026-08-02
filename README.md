@@ -1,3 +1,3 @@
-wHAT am i doint hELP
-![](https://komarev.com/ghpvc/?username=givemesunshines&color=blue&label=HI)
-<!-- ![4c66d91ca16e409d595ba6243e5fc08c](https://github.com/user-attachments/assets/85f10551-529b-46cb-833f-91836e4cf780)-->
+wHAT am i doing hELP HELP
+![](https://komarev.com/ghpvc/?username=givemesunshines&color=blue&label=how+much+longer+now)
+i love offtabing AND i love c+hing if i see that you have c+h in your name i will sit with you in like 90% of the time heh ![](https://atabook.org/images/smileys/smile.gif)
